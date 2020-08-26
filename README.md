@@ -1,0 +1,1 @@
+This is a math formula sheet that I am constantly adding to. Please note that certain portions of this formula sheet are not my own work (such as the inclusion of CollegeBoard's SAT formula sheet), and should not be considered as such.
